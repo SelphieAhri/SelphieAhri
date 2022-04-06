@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Nina Kitsu, also known as @SelphieAhri
+- 👀 I’m interested in ... (secret)....... #jk webdevelopment, architecture, good practices, animes
+- 🌱 I’m currently learning ...nothing I think o.O
+- 💞️ I’m looking to collaborate on ...dunno either.
+- 📫 How to reach me ...please, don't reach me, I bite sometimes :3
